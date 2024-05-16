@@ -1,1 +1,0 @@
-# ar-object-sampleege8v
